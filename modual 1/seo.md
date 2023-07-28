@@ -1,0 +1,5 @@
+what is SEO?
+
+   seo stands for search engine optimization
+   seo are free search you website inside of any google search engine seo is used to search to keyword and provides out of top 10 positions in any search engines 
+   seo is organic free 
